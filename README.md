@@ -1,4 +1,4 @@
-DataFest2024 Resources
+📈 DATAFEST2024 Resources 🎉
 
 
 Directora académica: Patricia Reyes Silva 
